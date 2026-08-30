@@ -12,5 +12,4 @@
 
 𝙄 💕 𝙂𝙮𝙧𝙤, 𝘾𝙖𝙞𝙣, 𝙍𝙚𝙞𝙜𝙚𝙣, 𝙖𝙣𝙙 𝙇𝙤𝙜𝙖𝙣
 
-<img width="511" height="112" alt="image" src="https://github.com/user-attachments/assets/3f3790ad-b7a9-458c-9dd7-dc310bc93b5e" />
 
