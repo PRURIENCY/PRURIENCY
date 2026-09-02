@@ -1,5 +1,9 @@
 ## 𝙃𝙞, 𝙄'𝙢 𝙎𝙞𝙙𝙣𝙚𝙮.
 
+
+![image](https://github.com/user-attachments/assets/b1c51cd5-268f-4ef3-9ae0-dc6cd627a2a4)
+
+
 𝘛𝘺𝘱𝘪𝘤𝘢𝘭𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣. 𝘞𝘩𝘪𝘴𝘱𝘦𝘳𝘪𝘯𝘨 𝘮𝘦 𝘸𝘰𝘶𝘭𝘥 𝘣𝘦 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦𝘥.
 
 (𝘐 𝘢𝘮 𝘲𝘶𝘪𝘦𝘵 𝘢𝘯𝘥 𝘢𝘸𝘬𝘸𝘢𝘳𝘥, 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘦𝘴 𝘪𝘯 𝘢𝘥𝘷𝘢𝘯𝘤𝘦.)
@@ -16,5 +20,3 @@
 
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/5b05c557-24d5-40ee-aebe-d9bc35cf0ab2" />
 
-
-![image](https://github.com/user-attachments/assets/b1c51cd5-268f-4ef3-9ae0-dc6cd627a2a4)
